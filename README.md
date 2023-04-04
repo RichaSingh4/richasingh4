@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi 👋 I'm Richa Singh
 
 # 💫 About Me:
 I am a final year Btech-CS student,<br>Passionate about software engineering and blockchain,<br>Quick learner and team player,<br>Excited to work on challenging projects.<br>When I'm not coding, I enjoy staying up to date with the latest trends in technology and expanding my knowledge in the field.
